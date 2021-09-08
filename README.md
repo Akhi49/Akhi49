@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with git hub
 - 💬 Ask me about Anything
 - 📫 How to reach me: vanaparthiakhil3@gmail.com
-- 😄 Pronouns: Mr
+- 😄 Pronouns: He
 - ⚡ Fun fact: always smile
